@@ -1,1 +1,1 @@
-![alt text](https://www.bing.com/search?q=%C3%81rea+de+Trabalho%2F+Gabriel+-+github2.PNG&src=IE-TopResult&FORM=IETR02&conversationid=)
+![Gabriel - Github](https://user-images.githubusercontent.com/79914251/118501930-994fed80-b6ff-11eb-8ef3-861b64d8b997.png)
